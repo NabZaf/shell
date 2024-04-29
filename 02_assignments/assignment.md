@@ -36,6 +36,12 @@ You are stuck in a virtual room and can only leave if you figure out the passwor
 ```
 Your answer here...
 
+Paper Rings 
+10 
+Meets
+Legacies (I did not count the words "Space Wars" as it was the name of the series, not that movie). 
+Lucky
+The (I included the & in the count)
 
 
 
